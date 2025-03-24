@@ -1,8 +1,10 @@
 # ☆ ➜  **BYI!**
 
-### 𖥂☆ I am *THE* #1 J fan she's my wife
+### 𓏵☆ I am *THE* #1 J fan she's my wife
 
-𓏵☆ all r free to c+h unless I have a dni in my name that you fit.  Just don't cover me unless you're a friend.
+#### 𖥂☆ PLZ PLS PLZ PLZ READ MY STRAWPAGE 4 MORE INFO IT HAS *EVERYTHING!!*
+
+𓏵☆ all r free to c+h unless I have a dni in my name that you fit, js don't cover me unless you're a friend then ofc u can cover
 
 𖥂☆ if you like and/or cosplay the panic!au (eww boo stinky eww) literally dni/IWEC (if ur already a friend it's an exception ig but don't bring it up) it makes me uneasy as hell
 
@@ -14,7 +16,7 @@
 
 𖥂☆ if I have a dniuf in my name and u int anyway ur getting blocked/hidden no exceptions unless ik u..  losers
 
-𓏵☆ If ur offline for too long, (like 100-300+ days) unless you're a close friend, I'm unfriendly u lol
+𓏵☆ If ur offline for too long, (like 100-300+ days) unless you're a close friend, I'm unfriending u lol sorry
 
 𖥂☆ my microwave cuts off my wifi when it's on for too long, no idk why 🧍‍♀️
 
