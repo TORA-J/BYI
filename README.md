@@ -1,8 +1,8 @@
 # ☆ ➜  **BYI!**
 
-𖥂☆ I am THE #1 J fan she's my wife
+### 𖥂☆ I am *THE* #1 J fan she's my wife
 
-𓏵☆ all r free to c + h unless I have a dni in my name that you fit.  Just don't cover me unless you're a friend.
+𓏵☆ all r free to c+h unless I have a dni in my name that you fit.  Just don't cover me unless you're a friend.
 
 𖥂☆ if you like and/or cosplay the panic!au (eww boo stinky eww) literally dni/IWEC (if ur already a friend it's an exception ig but don't bring it up) it makes me uneasy as hell
 
