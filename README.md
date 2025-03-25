@@ -1,10 +1,12 @@
 # ☆ ➜  **BYI!**
 
-### 𖥂☆ I am *THE* #1 J fan she's my wife
+### 𓏵☆ I am *THE* #1 J fan she's my wife
 
-#### 𓏵☆ PLZ PLS PLZ PLZ READ MY STRAWPAGE 4 MORE INFO IT HAS *EVERYTHING!!*
+#### 𖥂☆ PLZ PLS PLZ PLZ READ MY STRAWPAGE 4 MORE INFO IT HAS *EVERYTHING!!*
 
-##### 𖥂☆ call me Tora or Tala !  I prefer only my friends use batzi for me and make nicknames though plz. :3  //  pansexual; demiromantic; asexual; 
+##### 𓏵☆ call me Tora or Tala !  I prefer only my friends use batzi for me and make nicknames though plz. :3
+
+𖥂☆ **pansexual; (**HUGE** lean for women.. ..heh ladies wya.. /j) demiromantic; asexual; sapphic  //  pupgender, catgender, batgender, bunnygender, lollipopgender (guys pls im not a freak i swear i js use neogenders..) 
 
 𓏵☆ all r free to c+h unless I have a dni in my name that you fit, js don't cover me unless you're a friend then ofc u can cover
 
