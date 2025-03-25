@@ -1,12 +1,14 @@
 # ☆ ➜  **BYI!**
 
-### 𓏵☆ I am *THE* #1 J fan she's my wife
+### 𖥂☆ I am *THE* #1 J fan she's my wife
 
-#### 𖥂☆ PLZ PLS PLZ PLZ READ MY STRAWPAGE 4 MORE INFO IT HAS *EVERYTHING!!*
+#### 𓏵☆ PLZ PLS PLZ PLZ READ MY STRAWPAGE 4 MORE INFO IT HAS *EVERYTHING!!*
+
+##### 𖥂☆ call me Tora or Tala !  I prefer only my friends use batzi for me and make nicknames though plz. :3  //  pansexual; demiromantic; asexual; 
 
 𓏵☆ all r free to c+h unless I have a dni in my name that you fit, js don't cover me unless you're a friend then ofc u can cover
 
-𖥂☆ if you like and/or cosplay the panic!au (eww boo stinky eww) literally dni/IWEC (if ur already a friend it's an exception ig but don't bring it up) it makes me uneasy as hell
+𖥂☆ if you like and/or cosplay the panic!au (eww boo stinky eww) literally dni/IWEC (if ur already a friend it's an exception but don't bring it up) it makes me uneasy as hell
 
 𓏵☆ If you're a stranger I'm not going to repeatedly boop you back.  I might book you back for a little bit, but like you have to EVENTUALLY leave me alone
 
@@ -20,8 +22,12 @@
 
 𖥂☆ my microwave cuts off my wifi when it's on for too long, no idk why 🧍‍♀️
 
-𓏵☆ N and Uzi are the realistic characters from MD literally fight me they're literally so me
+𓏵☆ N and Uzi are the realest characters from MD literally fight me they're literally so me
 
-𖥂☆ if you're gonna spread the holy Bible or gospel or whatever to me because of how I act you're getting blocked
+𖥂☆ if you're gonna spread the holy bible or gospel or whatever to me because of how I act you're getting blocked
 
-𓏵☆ "ɪᴍ sᴏʀʀʏ ғᴏʀ ʙᴇɪɴɢ ᴠᴜʟɴᴇʀᴀʙʟᴇ ғᴏʀ ғɪᴠᴇ sᴇᴄᴏɴᴅs ᴏᴋᴀʏ?!"  𓆪
+𓏵☆ i get soul crushing social anxiety even online pls help /hj
+
+𖥂☆ "ɪᴍ sᴏʀʀʏ ғᴏʀ ʙᴇɪɴɢ ᴠᴜʟɴᴇʀᴀʙʟᴇ ғᴏʀ ғɪᴠᴇ sᴇᴄᴏɴᴅs ᴏᴋᴀʏ?!"  𓆪  —UZI // me core
+
+
