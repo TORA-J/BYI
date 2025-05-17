@@ -26,7 +26,7 @@
 
 𖥂☆ my microwave cuts off my wifi when it's on for too long, no idk why 🧍‍♀️
 
-𓏵☆ N and Uzi are the realest characters from MD literally fight me they're literally so me
+𓏵☆ Tessa, N and Uzi are the realest characters from MD literally fight me they're literally so me
 
 𖥂☆ if you're gonna spread the holy bible or gospel or whatever to me because of how I act you're getting blocked  //  no im not against religion, and im agnostic
 
