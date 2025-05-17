@@ -8,7 +8,7 @@
 
 𓏵☆ **DNI** if u harass ppl over unproblematic ships/participate in unnecessary ship wars (exceptions if it js pisses u off too much) // (I'm looking at like half of the nuzi shippers out there)
 
-𖥂☆ pansexual; (**HUGE** lean for women.. ..heh ladies wya.. /j) demiromantic; asexual; sapphic  //  pupgender; catgender; batgender; bunnygender; lollipopgender; (guys pls im not a freak i swear i js use neogenders..) agender girl/faegender (???wtf am i bru)
+𖥂☆ pansexual; (**HUGE** lean for women.. ..heh ladies wya.. /j) demiromantic; asexual; sapphic  //  pupgender; catgender; batgender; foxgender (guys pls im not a freak i swear i js use xenogenders..) agender girl/faegender (???wtf am i bru)
 
 𓏵☆ all r free to c+h unless I have a dni in my name that you fit, js don't cover me unless you're a friend or it's stated otherwise in my name, or I say otherwise, then ofc u can cover
 
