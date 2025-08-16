@@ -30,6 +30,6 @@
 
 𖥂☆ if you're gonna spread the holy bible or gospel or whatever to me because of how I act you're getting blocked  //  no im not against religion, and im agnostic
 
-𓏵☆ i get soul crushing social anxiety even online pls help /hj
+𓏵☆ im a ppl pleaser even online pls help /hj
 
 𖥂☆ "ɪᴍ sᴏʀʀʏ ғᴏʀ ʙᴇɪɴɢ ᴠᴜʟɴᴇʀᴀʙʟᴇ ғᴏʀ ғɪᴠᴇ sᴇᴄᴏɴᴅs ᴏᴋᴀʏ?!"  𓆪  —UZI // uzi was so real 4 dat 🦇
